@@ -1,5 +1,5 @@
 # SUMAN @ Jarin Tech
-- [HTML5 Resume Template]((https://jarintech.com/)
+- [Jarin Tech]((https://jarintech.com/)
 - ![Here Is The Screen Shoot](/screenshoot.png)
 Hey there; it's me! Muhammad Suman Biswas, born and raised in Dhaka, Bangladesh. I always love to play with codes, blogging, social media, search engine optimization and many more. I also love to keep me up-to-date with new technology and innovative creations. I'm familiar with the search engines by my unique keyword 'imamcu07'. To see my online activities, search 'imamcu07' by your search engine. I have good knowledge in SEO, SMM, Digital Marketing, Programming, Website Development and many more. Here are some of my works link:
 
