@@ -1,19 +1,19 @@
 # SUMAN @ Jarin Tech
 - [Jarin Tech]((https://jarintech.com/)
 - ![Here Is The Screen Shoot](/screenshoot.png)
-Hey there; it's me! Muhammad Suman Biswas, born and raised in Dhaka, Bangladesh. I always love to play with codes, blogging, social media, search engine optimization and many more. I also love to keep me up-to-date with new technology and innovative creations. I'm familiar with the search engines by my unique keyword 'imamcu07'. To see my online activities, search 'imamcu07' by your search engine. I have good knowledge in SEO, SMM, Digital Marketing, Programming, Website Development and many more. Here are some of my works link:
+Hey there; it's me! Muhammad Suman Biswas, born and raised in Dhaka, Bangladesh. I always love to play with codes, blogging, social media, search engine optimization and many more. I also love to keep me up-to-date with new technology and innovative creations. I'm familiar with the search engines by my unique keyword 'bmsuman'. To see my online activities, search 'bmsuman' by your search engine. I have good knowledge in SEO, SMM, Digital Marketing, Programming, Website Development and many more. Here are some of my works link:
 
 	
 <h2> &#10545; ::SEO Expert In BD | Portfolio Website:: &#10545; </h2>
 
-<p> &#10233; <a href="http://imamcu07.1apps.com"  target="_blank"  title="Click to See vCard Of imamcu07; SEO Expert In BD." ><b><i> SEO Expert In BD | vCard </i></b></a> </p> 
+<p> &#10233; <a href="https://facebook.com/jarintech"  target="_blank"  title="Click to See vCard Of bmsuman; SEO Expert In BD." ><b><i> SEO Expert In BD | vCard </i></b></a> </p> 
 <p> &#10233; <a href="http://seoexpertinbd.1apps.com"  target="_blank"  title="Click to See SEO Expert Profile Of imamcu07; SEO Expert In BD."><b><i> SEO Expert In BD | Profile </i></b></a></p>
-<p> &#10233; <a href="http://imamcu07portfolio.1apps.com"  target="_blank" title="Click to See SEO Expert Profile Of imamcu07; SEO Expert In BD."> <b><i> SEO Expert In BD | Portfolio </i></b></a></p>
-<p> &#10233; <a href="http://nextgenitbd.1apps.com" target="_blank" title="Click to See NextGen-IT Of imamcu07; SEO Expert In BD."> <b><i> NextGen-IT | Demo Company Website </i></b></a>	</p>
-<p> &#10233; <a href="http://rahela.1apps.com" target="_blank" title="Click to See Responsive Resume Of imamcu07; SEO Expert In BD."><b><i> Responsive Resume </i></b></a></p>
-<p> &#10233; <a href="http://imamcu07seoexpert.1apps.com/" target="_blank" title="Click to See HTML5 Profile Of imamcu07; SEO Expert In BD."><b><i> HTML5 Profile </i></b></a></p>
-<p> &#10233; <a href="http://bit.ly/seo-expert-portfolio" target="_blank" title="Click to See All Portfolio Of imamcu07; SEO Expert In BD." ><b><i> All Portfolio </i></b></a></p>
-<p> &#10233; <a href="https://imamcu07.wixsite.com/portfolio"  target="_blank" title="Click to See Wix Portfolio Of imamcu07; SEO Expert In BD."><b><i> Wix Portfolio | SEO Expert In BD </i></b></a></p>
+<p> &#10233; <a href="https://www.linkedin.com/in/bmsuman/"  target="_blank" title="Click to See SEO Expert Profile Of bmsuman; SEO Expert In BD."> <b><i> SEO Expert In BD | Portfolio </i></b></a></p>
+<p> &#10233; <a href="https://jarintech.com" target="_blank" title="Click to See Jarin Tech Of bmsuman; SEO Expert In BD."> <b><i> Jarin Tech | Demo Company Website </i></b></a>	</p>
+<p> &#10233; <a href="https://www.freelancer.com/u/ssinfotechbd" target="_blank" title="Click to See Responsive Resume Of bmsuman; SEO Expert In BD."><b><i> Responsive Resume </i></b></a></p>
+<p> &#10233; <a href="https://www.youtube.com/@bmsuman5832" target="_blank" title="Click to See HTML5 Profile Of bmsuman; SEO Expert In BD."><b><i> HTML5 Profile </i></b></a></p>
+<p> &#10233; <a href="https://x.com/JarinTechBd/seo-expert-portfolio" target="_blank" title="Click to See All Portfolio Of bmsuman; SEO Expert In BD." ><b><i> All Portfolio </i></b></a></p>
+<p> &#10233; <a href="https://www.fiverr.com/jarintech"  target="_blank" title="Click to See Fiverr Portfolio Of bmsuman; SEO Expert In BD."><b><i> Fiverr Portfolio | SEO Expert In BD </i></b></a></p>
 <p> &#10233; <a href="https://www.trepup.com/imamuddin" target="_blank" title="Click to See Trepup Portfolio Of imamcu07; SEO Expert In BD."><b><i> Trepup Portfolio | imamcu07 </i></b></a></p>
 <p> &#10233; <a href="https://seo-expert-in-bd.webnode.com/" target="_blank" title="Click to See Webnode Portfolio Of imamcu07; SEO Expert In BD."><b><i> SEO Expert In BD | Webnode</i></b></a></p>
 <p> &#10233; <a href="https://imamcu07.yolasite.com/" target="_blank" title="Click to See Yolasite Of imamcu07; SEO Expert In BD."><b><i> Yolasite | SEO Expert In BD</i></b></a></p>
