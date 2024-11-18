@@ -1,7 +1,7 @@
 # SUMAN @ Jarin Tech
 - [Jarin Tech]((https://jarintech.com/)
 - ![Here Is The Screen Shoot](/screenshoot.png)
-Hey there; it's me! Muhammad Suman Biswas, born and raised in Dhaka, Bangladesh. I always love to play with codes, blogging, social media, search engine optimization and many more. I also love to keep me up-to-date with new technology and innovative creations. I'm familiar with the search engines by my unique keyword 'bmsuman'. To see my online activities, search 'bmsuman' by your search engine. I have good knowledge in SEO, SMM, Digital Marketing, Programming, Website Development and many more. Here are some of my works link:
+Hey there; it's me! Mohammad Suman Biswas, born and raised in Mymensing, Bangladesh. I always love to play with codes, blogging, social media, search engine optimization and many more. I also love to keep me up-to-date with new technology and innovative creations. I'm familiar with the search engines by my unique keyword 'bmsuman'. To see my online activities, search 'bmsuman' by your search engine. I have good knowledge in SEO, SMM, Digital Marketing, Programming, Website Development and many more. Here are some of my works link:
 
 	
 <h2> &#10545; ::SEO Expert In BD | Portfolio Website:: &#10545; </h2>
